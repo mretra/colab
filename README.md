@@ -1,3 +1,1 @@
 # Cooperative work
-
-Lubaia fraza
